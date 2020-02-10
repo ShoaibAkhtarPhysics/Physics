@@ -1,0 +1,2 @@
+# The-world-of-Theoretical-Physics
+Theoretical Physics has been my major interest, in view of the fact that it helps in answering fundamental questions in physics and promises to unify the whole of physics. Theoretical Physics has always attracted me through its astonishing ways to look at hidden beauties and symmetries of nature; and when viewed through the Mathematical lens the ideas becomes more structured – both qualitatively and quantitively at the same time enhancing its strength.
